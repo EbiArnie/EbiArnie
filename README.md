@@ -1,2 +1,2 @@
 # Arne Becker
-- Working at [EMBL EBI](https://www.ebi.ac.uk/ "EMBL EBI")
+- I worked 2022-2026 at [EMBL EBI](https://www.ebi.ac.uk/ "EMBL EBI")
